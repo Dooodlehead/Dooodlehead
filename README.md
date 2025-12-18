@@ -2,7 +2,7 @@
 - 👀 I’m interested in C#
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me : Ask me private
+- 📫 How to reach me : Phone
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 
 
